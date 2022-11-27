@@ -1,4 +1,4 @@
-Interakcija covek racunar
+S obzirom da je Edina Dolicanina predmet, za sest dovoljno
 ----------------------------
 
 
