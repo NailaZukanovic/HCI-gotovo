@@ -1,5 +1,4 @@
-S obzirom da je Edina Dolicanina predmet, za sest dovoljno
-----------------------------
+
 
 
 ![WhatsApp Image 2022-07-27 at 19 36 11](https://user-images.githubusercontent.com/86067688/182080288-d4cb5f7f-c57e-487c-8fcc-ec706bffed0d.jpeg)
